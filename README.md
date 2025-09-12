@@ -28,8 +28,8 @@ Here’s a peek at the languages I use most:
 ---
 
 ### 📫 Reach Me
-- [Email](mailto:mayaoh2000@gmail.com)  
-- [LinkedIn](https://www.linkedin.com/in/maya-ostiguy-hopp)  
+- Email: mayaoh2000@gmail.com  
+- LinkedIn: https://www.linkedin.com/in/maya-ostiguy-hopp   
 
 ---
 
